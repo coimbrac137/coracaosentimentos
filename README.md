@@ -32,3 +32,8 @@ Relembrar os bons momentos, a curva do sorriso,
 Fazer de um simples instante o nosso paraíso.
 
 -- commit do igor 
+
+
+Gosta do fato de hj em dia eu poder me expressar com meus desenhos conceituais, é interessante ver meus antigos desenhos que eu fazia com garranchos mas cheios de sentimentos e que qualquer um que olhava notava ou percebia oq eu estava passando. ate hj meu desenho favorito é o tênis, fiz ele quando estava passando pelo meu momento mais dificil porem me deixou mais calmo e saber que hj em dia ele é usado como referencia ara outras pessoas começarem a desenhar e ate mesmo comprar minhas artes me deixa feliz.
+
+---------ALTERAÇÃO GUSTAVO 
